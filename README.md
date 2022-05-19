@@ -1,1 +1,1 @@
-Hi There :smile:
+Hi :smile:
